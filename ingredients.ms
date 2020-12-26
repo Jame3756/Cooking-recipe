@@ -1,0 +1,1 @@
+Eggs, Rice, Rice cooker, Sometimes cucumber, water, a oven grll, a pan, 

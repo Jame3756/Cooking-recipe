@@ -1,0 +1,1 @@
+Grill the eggs for about 1-1 1/2 minute, then cook the rice, and keep the water moist first with water, then cook it in the rice cooker, (personaly I add in a cucumber cut to around 8/10 pieces).
